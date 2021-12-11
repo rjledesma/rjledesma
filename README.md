@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rjledesma
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning basic coding
+- 💞️ I’m looking to collaborate on coding
+- 📫 How to reach me Reggie Ledesma FB
